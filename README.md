@@ -8,5 +8,5 @@
                
 　⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ᧔ 　 ᶠᵃⁿᵈᵒᵐ ⁱⁿᵗ  .  ᶜ⁺ʰ ᶠʳᵉᵉˡʸ ᵘⁿˡᵉˢˢ ˢᵗᵃᵗᵉᵈ ᵒᵗʰᵉʳʷⁱˢᵉ ᵇʸ ᵃ ᵈⁿⁱ 　　 ᧓
 
-　　　 　　 　　　 　　 　　　 　⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀ [strawpage](https://iknowwhoyouare.straw.page/)　 ![f7bbb2b6](https://github.com/user-attachments/assets/ff1bee29-c9f6-4355-9219-0be70cfc55b5)
+　　　 　　 　　　 　　 　　　 　⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀ [main](https://github.com/riddledbatz)　 ![f7bbb2b6](https://github.com/user-attachments/assets/ff1bee29-c9f6-4355-9219-0be70cfc55b5)
 　 [atabook](https://riddledbatz.atabook.org/)
