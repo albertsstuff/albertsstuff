@@ -15,4 +15,9 @@
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![1000034067-removebg-preview](https://github.com/user-attachments/assets/0debf51f-065d-46c4-be66-effb4c8a763d)
 
  　 
-　　　 　　 　　　 　　 　　　 　 　
+
+
+                      ... corrin appriciation   page #1 --->  https://goeswellwithgreen.straw.page/    .. . #2 in the making ... eye emoji   . 
+
+                      hi hi hi elphie hijake hi swweetness hi you are so important to me and i genuinely wouldnt be myself without you in my life . .you mean the absolute world to me and i love you !!!!!!!! ok thanksbaibai
+    
